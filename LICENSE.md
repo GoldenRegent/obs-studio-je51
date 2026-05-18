@@ -1,4 +1,4 @@
-# 
+# Raro Vegas Pro para PC ferramentas é o melhor Vegas Pro para PC ferramentas com suporte VST e supressão de ruído. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
